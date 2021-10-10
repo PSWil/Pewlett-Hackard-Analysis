@@ -24,8 +24,7 @@ Eligibility for the mentoryship program is determined by a select few factors to
 5. Under the current criteria there are no managers who qualify for the mentorship program. 
 
 ## Summary
+Under its current criteria for eligibility the mentorship program is not currently sustanible. With over 90,000 positions that will potentially need to be filled and there being only 1,550 employees currently eligible to join the mentorship program as mentors, it will be impossible for the mentors to divide their time between all the employees that could be under the mentorship and provide the quality of knowlege that the company would like to pass on and perserve. 
 
+Expanding the mentorship program to include those employees born between 1952 and 1955 will expand our pool of mentors and enable Pewlette Hackard to retain the necessary knowlege to propel the company forward and to engage in new venturs while having an exceptional understanding of the business processes that led to previous growth.
 
-
-![alt text](http://url/to/img.png)
-![alt text](http://url/to/img.png)
